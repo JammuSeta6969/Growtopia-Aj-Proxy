@@ -9,4 +9,4 @@ Join discord if u have any problem i will help you
 
 -------------------------------------------------------------------------------------
 
-Discord: discord.gg/mbSHXWXGsv
+discord.com/invite/mbSHXWXGsv
